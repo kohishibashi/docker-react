@@ -1,6 +1,6 @@
 ## 🌐 Article URL
 
-### **https://qiita.com/Bashi50/**
+### **https://qiita.com/Bashi50/items/8086e27c8e356e786227**
 
 ## 👀 Author
 
